@@ -1,0 +1,2 @@
+
+Se concede permiso, de forma gratuita, a cualquier persona que obtenga una copia de este software  para tratar el Software sin restricción, incluidos , los derechos para usar, copiar, modificar, fusionar, publicar, distribuir, sublicenciar  sin limitación
